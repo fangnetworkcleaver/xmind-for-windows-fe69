@@ -1,4 +1,4 @@
-# 
+# Get the ultimate XMind for Windows module with exclusive XMind for Windows Module | offline-access + Gantt-view. Featuring offline-access and Gantt-view, it's the best choice for
 
 
 
